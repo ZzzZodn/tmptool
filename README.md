@@ -1,5 +1,4 @@
 # tmptool
 
-https://anonfiles.com/v8e3hbY4x5/_3_zip
-
-https://anonfiles.com/H8q0h3Y3x3/_zip
+https://anonfiles.com/v2CdC7Yfxf/dirsearch_7z
+https://anonfiles.com/V7DfCdY2x0/_zip
